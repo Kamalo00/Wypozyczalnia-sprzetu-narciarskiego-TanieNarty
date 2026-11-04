@@ -1,2 +1,2 @@
-# Wypo-yczalnia-sprz-tu-narciarskiego-TanieNarty
+# Wypozyczalnia-sprzetu-narciarskiego-TanieNarty
 Wypożyczalnia sprzętu narciarskiego
